@@ -8,4 +8,4 @@
 
 📫 How to reach me:
 
-linkedin:
+linkedin: linkedin.com/in/aditya-khavate-26a488259
